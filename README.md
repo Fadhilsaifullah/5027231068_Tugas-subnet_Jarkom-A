@@ -1,0 +1,1 @@
+# 5027231068_Tugas-subnet_Jarkom-A
